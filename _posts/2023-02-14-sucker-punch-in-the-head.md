@@ -1,4 +1,4 @@
-## Sucker-punch in the head
+## Sucker-punch in the head 😡
 
 A guy sucker-punched me in the head. Right in the left temple. I didn’t even realize what was happening until I heard a loud noise and a smack right between my ears. And then my head rolled sideways and snapped back from the impact. He jumped and fled the bus. For a moment there was complete silence, then someone asked me if I was okay. The bus driver came over, and a bunch of people started talking between themselves about me. 
 “I’m fine,” I said, the trained response to anything (unless I was bleeding and dying).
@@ -30,4 +30,4 @@ Later, when people crowded about me, it struck me that none of them knew what th
 
 But it made me think about writing again. There was a story there. A nice, well-rounded Stephen King type of story about our collective stupidity, and ignorance, and sickness. Pain, and fear, and also hope. Our humanity that is all those things and more. It made me think that I miss it, this artistic commentary on life. And it made me think that I enjoy doing it. 
 
-This is the first story I’ve written in almost 2 years.
+This is the first story I’ve written in almost 2 years. 🥳
