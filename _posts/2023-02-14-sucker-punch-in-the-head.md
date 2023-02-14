@@ -30,10 +30,4 @@ Later, when people crowded about me, it struck me that none of them knew what th
 
 But it made me think about writing again. There was a story there. A nice, well-rounded Stephen King type of story about our collective stupidity, and ignorance, and sickness. Pain, and fear, and also hope. Our humanity that is all those things and more. It made me think that I miss it, this artistic commentary on life. And it made me think that I enjoy doing it. 
 
-This is the first story I’ve written in almost 2 years. 
-
- ```tsql
- SELECT *
- FROM sys.tables
- WHERE [name] = 'SomeTable'
- ```
+This is the first story I’ve written in almost 2 years.
