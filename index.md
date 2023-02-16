@@ -1,4 +1,4 @@
-Hi there! 👋
+Hi, friend! 👋
 
 I'm glad you found me. My name is Ksenia Anske and I like to write.
 
