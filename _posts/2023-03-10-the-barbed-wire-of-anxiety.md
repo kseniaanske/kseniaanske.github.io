@@ -1,3 +1,5 @@
+## The barbed wire of anxiety 😬
+
 The pain starts in the belly and radiates outward like a roll of barbed wire. You’re bleeding and you’re not bleeding at the same time. 
 “I’m anxious,” I think. 
 This is new. Not the anxiety. But the identification of the feeling. 
